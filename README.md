@@ -1,1 +1,0 @@
-# Sigma-Minecraft.github.io
